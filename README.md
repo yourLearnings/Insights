@@ -10,11 +10,11 @@
   
   I decided to move along one side of the road and keep counting the crosses to trace back to the stay location. I could have chosen building as a landmark, but the building and the malls look haunted once the lights are off and no one can realise.
   
-    I don’t want to repeat the Chennai episode, keeping the building as reference for the locality.
+  I don’t want to repeat the Chennai episode, keeping the building as reference for the locality.
   
-    So this time only crosses as nodes for traceability, the place is well known for proper displays at the crosses, even though I have not trained enough for this pattern. I started taking snaps for reference as I crossed each.
+  So this time only crosses as nodes for traceability, the place is well known for proper displays at the crosses, even though I have not trained enough for this pattern. I started taking snaps for reference as I crossed each.
     
-    So many renovations and construction work were taking place and a good percentage of the crowd were the construction workers.
+  So many renovations and construction work were taking place and a good percentage of the crowd were the construction workers.
   
   I was fascinated at observing nature and people. I continued the same while walking through the streets and crossing the crosses. Now I got a rough idea about the locality and decided to walk back.
   
@@ -27,8 +27,8 @@ Now the time was near to 10 PM and I reaching the room I could find out the room
   
   KRRRIIINNNGG….the doorbell, the sound took away my breath. It was the room boy. came with the water bottles. while thanking him, I just watched doesn’t he look like a psycho?
 
-    I closed the door and tried to sleep, yes again it is going to be another sleepless night…..cursing and counting ….1…1.30,…2.45…….3,3.35…..4,05,420…….5,505,..5.45,5.55..6.10…8.20…
+  I closed the door and tried to sleep, yes again it is going to be another sleepless night…..cursing and counting ….1…1.30,…2.45…….3,3.35…..4,05,420…….5,505,..5.45,5.55..6.10…8.20…
     
-    Time to get ready….but a feeling so relieved even though I couldn’t sleep peacefully a bit …
+  Time to get ready….but a feeling so relieved even though I couldn’t sleep peacefully a bit …
 
 
