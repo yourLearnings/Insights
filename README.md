@@ -1,5 +1,3 @@
-x
-
 
 
 # Just another sleepless night 
@@ -62,12 +60,12 @@ KRRRIIINNNGG….the door bell, the sound took away my breath. It was the room bo
                                 <p> 
 I closed the door and tried to sleep, yes again it is going to be a sleepless
                                 night…..cursing and counting ….1…1.30,…2.45…….3,3.35…..4,05,420…….5,505,..5.45,5.55..6.10…8.20…
-</p>  <p> 
+</p>  
 Time to get ready….but a feeling so relieved even though I couldn’t sleep peacefully a bit …
                                
                                
                                
-                               </P>
+                          
                                
    </body>
 
