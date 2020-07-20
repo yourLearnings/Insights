@@ -1,26 +1,13 @@
-# Reference 
-
-https://www.youtube.com/watch?v=BA_c3bGQXlQ
-
-    Go to settings and select git hub pages --> select soruce master branch
-    This can be set only if you are have some contents in the same.
+x
 
 
 
- k<h1> Just another sleepless night </h1>
+# Just another sleepless night 
 <h3> Yes a few months back, just another scary sleepless night. </h3>
 
 
    <body>
-    
-    <div text-align: center;>
-      Serial killer the picture that comes to my mind. Corutesy online soruces. 
-      link:<br>
-      <a href="https://encrypted-tbn0.gstatic.com/images?q=tbn%3AANd9GcQiLsNuRurx6s7EW4sGxuWqSQ8vryxXHTZJkQ&usqp=CAU">
-         <img alt="Qries" src="https://entertainment.time.com/wp-content/uploads/sites/3/2013/09/mbdfrth_ec042_h-copy.jpg?w=720&h=480&crop=1"
-         width=300" height="150">
-      </a>
-                                </div>
+
  <p> 
 This time I was on tour and decided to opt private stay homes for stay, that too for the first time. 
 The last-minute planning went fuzzy and I decided to share it to my friend at bangalore.  The could help me finalise                        help in finalising 
