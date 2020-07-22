@@ -38,7 +38,7 @@
   
   Reaching near the homes I was so alerted about the security aspects and I started inspecting, the wall highest is not enough, someone who climbs the wall can reach the room,
   the window……. 
-  I got a slight relief, seeing that my rooms windows faces the main road, so can expect a little more secure. 
+  I got a slight relief, seeing that my rooms, windows are facing the main road, so can ensure or expect a little more secure. 
   
   By 9.30 PM, I reached back. I called room service to enquire about morning services and requested for providing water bottles. 
   Maam Currently they are slighlty busy, the room   boy will bring it before 10, came the reply. 
