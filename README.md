@@ -2,19 +2,31 @@
 
 
 ## Yes a few months back, just another scary sleepless night.
-  This time I was on tour and decided to opt for private stay homes for stay, that too for the first time. The last-minute planning went fuzzy and I decided to share it with my friend in Bangalore. They could help me finalise, the stay, which was at a walkable distance from the place, I planned to visit.
+  This time I was on tour and decided to opt for private stay homes, that too for the first time. 
+  The last-minute planning went fuzzy, I decided to share the stay arrangements with my friend in Bangalore. 
+  They could help me finalise, the stay, which was at a walkable distance from the place, I planned to visit.
   
   Once the check-in procedures were completed, I decided to explore the place a little more to find out local amenities.
   
-  I came out of the building, and as usual, the first thing I tried was to trace out the map. The location of the home was properly tagged, but the real-time update was not proper and landmarks were not sufficient. I couldn’t make out the directions from the way it shows. Moving forward and backwards couldn’t help. I tired with phone twisting, shaking and the only action left way throwing away. Now I could realise it is not going to be an easy task. The darkness already covered the landmarks, a familiar person can only traceback.
+  I came out of the building, and the first thing I tried was to trace out the map, the most accurate, Trustable Guide and route tracker GOOGLE MAP. 
   
-  That triggered the alert of getting dependence, which I preferred least. From my previous experience with this place, I know these n crosses are going to confuse me and push me into trouble as always.
+  But this time, home stay location  was properly tagged, but the real-time update was not proper and landmarks were not sufficient. 
+  I couldn’t make out the directions from the way it shows. Moving forward and backwards couldn’t help. 
+  I tired with phone twisting, shaking and the only action left was throwing away. Now I could realise it is not going to be an easy task. 
+  The darkness already covered the landmarks, a familiar person can only traceback.
   
-  I decided to move along one side of the road and keep counting the crosses to trace back to the stay location. I could have chosen building as a landmark, but the building and the malls look haunted once the lights are off and no one can realise.
+  That triggered the alert of getting dependence, which I preferred least. 
+  From all my previous experience in Bangalore, I know these N crosses are going to confuse me and push me into trouble as always.
   
-  I don’t want to repeat the Chennai episode, keeping the building as reference for the locality.
+  I decided to move along one side of the road and keep counting the crosses so that I can reach back. 
+  I could have chosen building as a landmark, but the building and the malls look haunted once the lights are off and no one can recognise.
   
-  So this time only crosses as nodes for traceability, the place is well known for proper displays at the crosses, even though I have not trained enough for this pattern. I started taking snaps for reference as I crossed each.
+  I don’t want to repeat the Chennai episode, keeping the building as reference for the locality. 
+  The unique beaufy of most of the buildings/malls are created with lights. Once they are off we realise the need for observing finer details. 
+  
+  This time the unique feature for recognition is Cross Landmarks, learnings from previous experiences must be adapted so that you wont repeat the same mistakes.
+  Building names were noted as a additional feature. The place is well known for proper displays at the crosses, even though I have not trained enough for this pattern. 
+  As an additional backup, I started taking snaps for reference as I crossed each.
     
   So many renovations and construction work were taking place and a good percentage of the crowd were the construction workers.
   
