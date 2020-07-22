@@ -37,7 +37,12 @@
   Reaching near the homes I was so alerted about the security aspects and I started inspecting, the wall highest is not enough, someone who climbs the wall can reach the room, the window……. I got a slight relief seeing the window faces the main road, so can expect a little more secure.
 Now the time was near to 10 PM and I reaching the room I could find out the room service was not proper and they have not provided the water bottles. I called them and requested for the same.
 
-  Meanwhile, I called my siblings and decided to check the FB. Opening the page itself it showed “Taking lives” with a brief “hunting down a serial killer who assumes the identities of his victims after killing them. ” serial killer ..psychopath, I shouldn’t have opened Facebook. I started cursing the time I decided to log in to Facebook. I too have watched some, but made sure not during travel, or when staying alone.
+  Meanwhile, I called my siblings and decided to check the FB. 
+  
+  Opening the page itself it showed “Taking lives” with a brief “hunting down a serial killer who assumes the identities of his victims after killing them. ” serial killer ..psychopath, I shouldn’t have opened Facebook. 
+  The only face that come to mind when i hear serial killer is 
+  
+  I started cursing the time I decided to log in to Facebook. I too have watched some, but made sure not during travel, or when staying alone.
   
   KRRRIIINNNGG….the doorbell, the sound took away my breath. It was the room boy. came with the water bottles. while thanking him, I just watched doesn’t he look like a psycho?
 
