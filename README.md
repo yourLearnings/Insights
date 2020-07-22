@@ -30,24 +30,37 @@
     
   So many renovations and construction work were taking place and a good percentage of the crowd were the construction workers.
   
-  I was fascinated at observing nature and people. I continued the same while walking through the streets and crossing the crosses. Now I got a rough idea about the locality and decided to walk back.
+  I was fascinated at observing nature and people. I continued the same while walking through the streets and crossing the crosses. 
+  After an hour walk, I got a rough idea about the locality and decided to walk back. 
   
-  Seeing so many other state workers, remind me about the events at Hyderabad, Bangalore.. and also about the article about the psycho nature and reasons for such stages. Unknowingly a fear was triggered in my mind.
+  Seeing so many other state workers, remind me about the events at Hyderabad, Bangalore.. and also about the article about the psycho nature and reasons for such stages.
+  Unknowingly a fear creeped into my mind. Even if I tried to be calm, so scenes were flashing in the background, triggering fear in my mind.
   
-  Reaching near the homes I was so alerted about the security aspects and I started inspecting, the wall highest is not enough, someone who climbs the wall can reach the room, the window……. I got a slight relief seeing the window faces the main road, so can expect a little more secure.
-Now the time was near to 10 PM and I reaching the room I could find out the room service was not proper and they have not provided the water bottles. I called them and requested for the same.
+  Reaching near the homes I was so alerted about the security aspects and I started inspecting, the wall highest is not enough, someone who climbs the wall can reach the room,
+  the window……. 
+  I got a slight relief, seeing that my rooms windows faces the main road, so can expect a little more secure. 
+  
+  By 9.30 PM, I reached back. I called room service to enquire about morning services and requested for providing water bottles. 
+  Maam Currently they are slighlty busy, the room   boy will bring it before 10, came the reply. 
 
-  Meanwhile, I called my siblings and decided to check the FB. 
+  Meanwhile, I decided to check facebook.  
   
-  Opening the page itself it showed “Taking lives” with a brief “hunting down a serial killer who assumes the identities of his victims after killing them. ” serial killer ..psychopath, I shouldn’t have opened Facebook. 
-  The only face that come to mind when i hear serial killer is 
+  Opening the page itself it showed <b>“Taking lives”</b> with a brief “hunting down a serial killer who assumes the identities of his victims after killing them. ” 
+  serial killer ..psychopath, 
+  
+  I shouldn’t have opened Facebook. 
+  The only face that come to mind when i hear serial killer is from scream, a man with a knife. 
   
   I started cursing the time I decided to log in to Facebook. I too have watched some, but made sure not during travel, or when staying alone.
   
-  KRRRIIINNNGG….the doorbell, the sound took away my breath. It was the room boy. came with the water bottles. while thanking him, I just watched doesn’t he look like a psycho?
+  KRRRIIINNNGG….the doorbell, the sound took away my breath. 
+  It was the room boy. came with the water bottles. while thanking him, I just watched doesn’t he look like a psycho?
+  
+  
 
-  I closed the door and tried to sleep, yes again it is going to be another sleepless night…..cursing and counting ….1…1.30,…2.45…….3,3.35…..4,05,420…….5,505,..5.45,5.55..6.10…8.20…
+  I closed the door and tried to sleep, yes again it is going to be another sleepless night…..cursing and counting ….1…1.30,…2.45…….3,3.35…..4,05,420…….5,505,..5.45,5.55..6.10…   8.20…
     
   Time to get ready….but a feeling so relieved even though I couldn’t sleep peacefully a bit …
+  
 
 
